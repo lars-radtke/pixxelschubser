@@ -1,4 +1,4 @@
-Hi there! I'm pixxelschubser.
+Hi there! I'm Lars.
 
 I'm a freelance media designer and web developer in the making.
 
